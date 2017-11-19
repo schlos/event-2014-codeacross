@@ -17,4 +17,4 @@ Stay tuned for the agenda!
 What to expect:
 ---------------
 
-coming soon
+coming soon...
